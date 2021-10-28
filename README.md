@@ -1,3 +1,5 @@
-Selam ben Inf(G)o!
+Hi, I'm Inf(G)o!
 
-Bir şeyler deniyorum.
+I'm trying something
+but
+idk what am I doing.
